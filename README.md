@@ -1,1 +1,0 @@
-# meparthpanchal.github.io
